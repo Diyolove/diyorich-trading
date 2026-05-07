@@ -1,1 +1,0 @@
-# diyorich-trading
